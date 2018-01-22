@@ -1,2 +1,4 @@
 # Just-the-strat-
-Jish high school years 
+Just high school years 
+tru 
+weeee yoooooooooooooooooooooooooooooo
